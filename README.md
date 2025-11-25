@@ -1,1 +1,1 @@
-# -
+Adventure of making money
